@@ -1,2 +1,3 @@
 # chris
-Glitzcamp provides glamping tents design and production, creating unique glamping event &amp; accommodation facilities for you. It also provides site planning services for glamping sites.
+Are you ready to elevate your outdoor adventures? Say goodbye to basic camping and hello to glamping — glamorous camping — with our collection of luxurious tents for camping. Whether you're planning a romantic getaway, a family retreat, or an off-grid escape with all the comforts of home, our glamping tents are designed to impress.
+
